@@ -130,9 +130,8 @@ I'm always interested in collaborating on:
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: *Add your LinkedIn profile*
-* 📧 Email: *Add your email*
-* 🌐 Portfolio: *Add your portfolio website*
+* 💼 LinkedIn: www.linkedin.com/in/anas-anwaar
+* 📧 Email: manasanwaar17@gmail.com
 
 ---
 
